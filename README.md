@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kapsi-xx
+- 👀 I’m interested in music and app development
+- 🌱 I’m currently learning theorbo and baroque guitar 
+- 💞️ I’m looking to collaborate on a method of basse chiffree
+- 📫 How to reach me : kapsi at me.com
